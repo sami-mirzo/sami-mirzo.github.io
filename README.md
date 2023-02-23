@@ -1,2 +1,0 @@
-# sami-mirzo.github.io
-
